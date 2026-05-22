@@ -1,2 +1,0 @@
-# davidkukoyi
-My Portfolio
